@@ -17,3 +17,6 @@ Subscription Paid Transaction completed.
 Copy, imitate and learn. Make your own content research report.
 
 Floor members only. quantity. price . open. Catering Drinks. Location. space. The maximum carry limit for one card is four to five people.
+
+
+Pricing. price. Hourly rate. hours. 24 12 8 a day
